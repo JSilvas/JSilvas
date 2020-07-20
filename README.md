@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+🤸‍♂️ＥＸＵＢＥＲＡＮＴ🧘‍♀️ Creator & UX Engineer 🛠 | #Mind, #XR, & #AI 🧠 | Life-long musician🎶, full-time over-thinker(realityquestpodcast.com)
