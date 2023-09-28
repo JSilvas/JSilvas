@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 
 
-🤸‍♂️ＥＸＵＢＥＲＡＮＴ🧘‍♀️ Creator & UX Engineer 🛠 | #Mind, #XR, & #AI 🧠 | Life-long musician🎶, full-time over-thinker(realityquestpodcast.com)
+🤸‍♂️ＥＸＵＢＥＲＡＮＴ🧘‍♀️ Creative Technologist & UX Engineer 🛠 | #Mind, #XR, & #AI 🧠 | Life-long musician🎶, full-time over-thinker(realityquestpodcast.com)
